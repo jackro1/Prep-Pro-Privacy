@@ -38,4 +38,4 @@ This policy may be updated from time to time. Updates will appear on this page.
 
 ## Contact
 
-Email: Application11@gmail.com
+Email: Application11211@gmail.com
